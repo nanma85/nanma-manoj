@@ -1,2 +1,0 @@
-# nanma-manoj
-Assignment
